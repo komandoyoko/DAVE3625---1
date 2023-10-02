@@ -1,2 +1,2 @@
 Innleveringer i emnet Introduksjon til Kunstig intelligens. 
-Lykke til!
+Lykke til 2x!
